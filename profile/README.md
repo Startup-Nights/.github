@@ -20,4 +20,4 @@ The family grew from 1000 to 8000 visitors in 5 years. We helped the community t
 - [Aftermovie 2021](https://www.youtube.com/watch?v=FwDL17BO_ig)
 - [Aftermovie 2020](https://www.youtube.com/watch?v=gva-L225FnQ)
 
-Do you feel inspired? [Come and join us!](https://hiring.startup-nights.ch) We are always on the lookout for like-minded people
+Do you feel inspired? [Come and join us!](https://startup-nights.ch/hiring) We are always on the lookout for like-minded people!
