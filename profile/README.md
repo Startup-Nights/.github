@@ -19,6 +19,7 @@ With Startup Nights, we want the Swiss startup ecosystem to grow. Further, we wa
 
 The family grew from 1000 to 8000 visitors in 5 years. We helped the community to connect, grow, and get inspired – year after year at the Startup Nights. But see for yourself.
 
+- [Aftermovie 2023](https://www.youtube.com/watch?v=g_8TSNUpc1I)
 - [Aftermovie 2022](https://www.youtube.com/watch?v=PXoV8h_maMk)
 - [Aftermovie 2021](https://www.youtube.com/watch?v=FwDL17BO_ig)
 - [Aftermovie 2020](https://www.youtube.com/watch?v=gva-L225FnQ)
